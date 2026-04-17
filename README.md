@@ -1,0 +1,1 @@
+# main-verse-for-protection-from-black-magic-and-jinn
